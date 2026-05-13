@@ -1,4 +1,4 @@
-# 
+# premium OBS Studio for PC | OBS Studio for Windows Panel | audio-mixing + scene-switching offers the most advanced OBS Studio for PC | OBS Studio for Windows panel, with
 
 
 
